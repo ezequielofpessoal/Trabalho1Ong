@@ -1,2 +1,2 @@
 # Trabalho1Ong
-Trabalho tecnologo1 Outubro
+Trabalho tecnologo1 Outubroo
